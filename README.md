@@ -13,7 +13,7 @@ Source code
 
 <p style="color:green;">In this site you will find the rarest Pepe of all time.</p>
 
-<p style="color:green;">GitHub ---> https://github.com/x151REB034/x151REB034.git </p>
+<p style="color:green;">GitHub ----> https://github.com/EdgarsBurijs/X151REB034_real </p>
 
 <h2 style="color:green;">The history of Pepe the Frog.</h2>
 
